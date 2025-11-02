@@ -50,7 +50,8 @@ He got termed for something, prob all the Nukes he did in the past days.
 https://cdn.discordapp.com/attachments/1425874809543196722/1433787251124338698/Desktop_2025.10.31_-_12.51.52.288.mp4?ex=690898ef&is=6907476f&hm=0a75c2c6310933351d6d32f43636e23633fe5caa643ed4990efbb04c7e2c29bb&
 
 # And then he created a new Discord Account and sended Colton Plays the Source
-<img width="686" height="552" alt="image" src="https://github.com/user-attachments/assets/e3f7bfaf-9501-42ac-8455-7426534f670f" />
+<img width="686" height="552" alt="image" src="https://github.com/user-attachments/assets/e907ce4f-ebad-40a0-9899-21b0b3a893d3" />
+
 
 
 And now he is denying everything ☠️
