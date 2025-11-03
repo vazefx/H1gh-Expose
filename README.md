@@ -1,4 +1,4 @@
-# H1gh-Expose (Biggest AI Coder in History)
+# Low/H1gh-Expose(Biggest AI Coder in History)
 
 First of all, i wouldnt do this type of Documents but he tried to "expose" me, so fuck it..
 
