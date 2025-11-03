@@ -62,5 +62,14 @@ And now he is denying everything ☠️
 That was lit the Account he used to send the Source.
 
 
+# Name and Change and Skidding Section.
+
+**He changed his name to Low, get it H1gh now Low.. uhm anyways he asked what Season he should do on his Server look**
+<img width="1302" height="549" alt="{4E7F196F-CCAF-4556-A8F3-B217751347C3}" src="https://github.com/user-attachments/assets/899a4ee9-6764-4ad4-990c-7eb1a2a8f50c" />
+
+**And somehow both Seasons are already Open Source on Github**
+
+
+
 # Thank you for reading 💔
 
